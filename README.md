@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-COFJ990723HCLRNS02
+COFJ990723HCLRNS02
